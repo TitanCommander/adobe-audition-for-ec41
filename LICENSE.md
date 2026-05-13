@@ -1,4 +1,4 @@
-# 
+# professional Adobe Audition for PC | Adobe Audition for Windows Addon | audio-trimming + macro-recording offers the most advanced Adobe Audition for PC | Adobe Audition for
 
 
 
